@@ -29,4 +29,4 @@ Mike was here! :)
 
 Isguma was here!!!
 
-Jack was here :3 for the fifteenth entry XD
+Jack was here :3 for the fifteenth entry XD XD
