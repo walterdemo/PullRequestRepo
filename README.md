@@ -32,3 +32,5 @@ Isguma was here!!!
 Jack was here :3 for the fifteenth entry XD XD
 
 ycl818 was here :)
+
+Kringlan was here
