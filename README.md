@@ -46,5 +46,5 @@ Adhemar was here! Fantastic course, just wish I did it before I had to restart y
 
 Osama Makhlouph was here! :)
 
-Andreas was here (⊙_⊙)
+Andreas was here! :)
 
