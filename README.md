@@ -50,6 +50,8 @@ Damon Zheng was here! Plz keep updating some new course for UE5!!
 
 Andreas was here! :)
 
+Thank you sensei! A random dude was here
+
 Theodore was here! Love the Course!
 
 Hello there, General Kenobi!
