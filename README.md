@@ -60,3 +60,5 @@ Hello there, General Kenobi!
 Randy was here :-)
 
 Joel was here XD
+
+Lucas Romero was here! That course was my kick-start on my UE5 Journey, looking foward to the next episode of this Journey.
