@@ -61,6 +61,8 @@ Randy was here :-)
 
 Joel was here XD
 
+Lucas Romero was here! That course was my kick-start on my UE5 Journey, looking foward to the next episode of this Journey.
+
 ServiceTech was here!
 
 Thanks for your courses, Stephen! They have been incredibly helpful -Cheyenne
