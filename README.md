@@ -71,6 +71,7 @@ I was here too
 
 Lucas was here! ＼(ﾟｰﾟ＼)
 
+Brian was here. Better late than never!
 
 Elvan was here!!!! :)
 
