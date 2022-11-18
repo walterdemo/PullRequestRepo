@@ -82,3 +82,5 @@ Fabian was here, OMG it works lol
 Hey Saurabh is here, this course is awesome. I learn many new conecept.
 
 Kyuzo was here UwU
+
+kyshin/kishaky was here! Thank you for the course. :-)
