@@ -84,3 +84,8 @@ Hey Saurabh is here, this course is awesome. I learn many new conecept.
 Kyuzo was here UwU
 
 Giovanni was here
+
+kyshin/kishaky was here! Thank you for the course. :-)
+
+MM was here. Great work on the course!
+
