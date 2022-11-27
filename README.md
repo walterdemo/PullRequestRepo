@@ -89,3 +89,5 @@ kyshin/kishaky was here! Thank you for the course. :-)
 
 MM was here. Great work on the course!
 
+Krishna also edited this README and optimized it for better performance. XD
+
