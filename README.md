@@ -89,3 +89,5 @@ kyshin/kishaky was here! Thank you for the course. :-)
 
 MM was here. Great work on the course!
 
+Andreea was here as well. Thank you for this course and your time! (I can't wait to get started on your next one)
+
