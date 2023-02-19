@@ -89,6 +89,7 @@ kyshin/kishaky was here! Thank you for the course. :-)
 
 MM was here. Great work on the course!
 
+Bommy was here!
 
 Julien was here too. Wish you all the best!
 
