@@ -89,6 +89,8 @@ kyshin/kishaky was here! Thank you for the course. :-)
 
 MM was here. Great work on the course!
 
+Andreea was here as well. Thank you for this course and your time! (I can't wait to get started on your next one)
+
 It's 2023 and there many, many messages preceeding this. DMC approves. Cheers!
 
 Esmaeil is here. I'd appreciate you Stephen!
@@ -96,5 +98,6 @@ Esmaeil is here. I'd appreciate you Stephen!
 brucedeity was here!
 
 Krishna also edited this README and optimized it for better performance. XD
+
 
 
