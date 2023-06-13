@@ -110,3 +110,5 @@ Alex was here! Thanks for the course!
 Finishing this excellent Git course. It really deserves a 5 star rating! Thank you, Stephen!
 
 Artyom was here. Great course Stephen, thank you!
+
+The Lazy Goose was here :o
