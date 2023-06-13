@@ -112,3 +112,6 @@ Finishing this excellent Git course. It really deserves a 5 star rating! Thank y
 Artyom was here. Great course Stephen, thank you!
 
 The Lazy Goose was here :o
+
+Kiril was here! (:
+
