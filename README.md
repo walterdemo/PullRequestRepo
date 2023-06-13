@@ -105,3 +105,4 @@ Krishna also edited this README and optimized it for better performance. XD
 
 SickDucker was here. Don't overthink my name. ;)
 
+Finishing this excellent Git course. It really deserves a 5 star rating! Thank you, Stephen!
