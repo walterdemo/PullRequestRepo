@@ -125,3 +125,5 @@ Omkar was here!
 
 TequilaSunset was here, what a course!
 
+Felisia here. Thanks for everything, Stephen. Looking forward to your next courses :]
+
