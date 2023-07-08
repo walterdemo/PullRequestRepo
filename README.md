@@ -127,3 +127,5 @@ TequilaSunset was here, what a course!
 
 Felisia here. Thanks for everything, Stephen. Looking forward to your next courses :]
 
+Hatt was here. Thanks for showing me how to use Git. Keep up the good work :] 
+
