@@ -128,3 +128,10 @@ TequilaSunset was here, what a course!
 Felisia here. Thanks for everything, Stephen. Looking forward to your next courses :]
 
 Mentor Appreciate you Deeply C0mpi11er.:p
+
+Great course as usual
+
+Sam Was Here ...
+
+Asimantos was here! This is really an unreal cool course
+
